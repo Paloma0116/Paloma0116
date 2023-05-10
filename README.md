@@ -1,10 +1,7 @@
-- 👋 Hi, I’m @Paloma0116
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👋 Haro, full cansaço e ansiedade :)
+- Interessado em ter sorte nos gachas e jogos (Bronya vem pra casa tem gente chorando)
+- Mas bah
+- 💞️ amor? apenas pela minha Ellie, Amicia e Vih
+- bjão
 
-<!---
-Paloma0116/Paloma0116 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
